@@ -24,7 +24,6 @@ Click the **"Order Now"** button on our website and fill out the Google Form to 
 ## 🙋‍♂️ Creator
 **Abhinav Pandey**  
 Class 10 Student | T-shirt Designer | Nature & Travel Lover  
-UPI ID for orders: `9470921004@fam`
 
 ---
 
